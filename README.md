@@ -1,0 +1,1 @@
+# SSDD-editor-suscriptor
